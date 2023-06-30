@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Galdino31
 - 👀 I’m interested in aprender mais sobre programação.
 - 🌱 I’m currently learning a programar
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on varias coisas ao meu alcance 
 - 📫 How to reach me (11)94956-5677
 
 <!---
