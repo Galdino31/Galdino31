@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Rogério Gomes
+- 👋 Hi, I’m @Galdino31
 - 👀 I’m interested in learn more about programming.
 - 🌱 I’m currently learning to program
 - 💞️ I’m looking to collaborate on several things within my reach
